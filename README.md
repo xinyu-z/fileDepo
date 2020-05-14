@@ -1,4 +1,4 @@
-The Bai description pdf needs editing.
+The *Bai Description* pdf needs editing.
 
 Word list uploaded, transcribed according to elicitation recordings made in the informant's house. 
 
